@@ -9,5 +9,5 @@ Vermelho é a cor da paixão e energia associada ao poder, à guerra, ao perigo 
 
 Proposta baseada nas músicas Paint it, black dos Rolling Stones e da Lama ao Caos do Chico Science e Nação Zumbi.
 
-
+Por Guilherme Roizentul e Mariana Akemi.
 
